@@ -2,7 +2,7 @@
 - 👀 I’m interested in Engineering
 - 🌱 I’m currently learning CS AP
 - 💞️ I’m looking to collaborate on Games
-- 📫 How to reach me mini.pengjiale2007@gmail.com
+- 📫 How to reach me garry.peng2007@gmail
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: I really good at virtualpiano.net
 
